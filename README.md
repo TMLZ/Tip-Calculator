@@ -1,3 +1,3 @@
 Tip-Calculator
 ==============
-![alt tag](http://www.mediafire.com/convkey/fa1f/3w7dk39339bs1urfg.jpg)
+![alt tag](http://www.mediafire.com/convkey/62d2/s68vc92732t5nodfg.jpg)
